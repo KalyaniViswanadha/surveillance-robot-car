@@ -95,4 +95,4 @@ So, what are you waiting for? Embark on thrilling spy missions and explore the w
 
 Enjoy the fun and excitement! 😄
 
-![MasterHead](https://cdn.discordapp.com/attachments/782838733133053994/1134424920886091837/image.png).
+![MasterHead](https://cdn.discordapp.com/attachments/782838733133053994/1134424920886091837/image.png)
